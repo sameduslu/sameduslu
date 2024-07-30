@@ -1,3 +1,3 @@
-### Hi there I'm Samed Uslu
+### Hi there, I'm Samed Uslu
 
-I'm a junior student at Bilkent University Computer Engineering Department
+I'm a senior student at Bilkent University Computer Engineering Department
